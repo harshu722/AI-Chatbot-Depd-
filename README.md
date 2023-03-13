@@ -27,11 +27,10 @@
 ## Connect with Me: 
 
 <br>
+Kolluru saharsh = __saharsh_722gt_r
+Telegrem number = 9430732682
 
-[![N|Solid](images/telegram.svg)](https://t.me/vinayak_09)
 
-
-[![N|Solid](images/instagram.svg)](https://instagram.com/vinayak_patil_09)
 
 
 <br>
